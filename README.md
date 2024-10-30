@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on movies
 - 📫 How to reach me ? You can't
 - 😄 Pronouns: He
-- ⚡ Fun fact: I'
+- ⚡ Fun fact: IDK
 
 <!---
 Maurici09/Maurici09 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
