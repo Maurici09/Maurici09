@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Maurici09
-- 👀 I’m interested in Gaming
+- 👀 I’m interested in Gaming and movies
 - 🌱 I’m currently learning Informatic
 - 💞️ I’m looking to collaborate on movies or videos
 - 📫 How to reach me ? You can't
